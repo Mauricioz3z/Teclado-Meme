@@ -1,4 +1,4 @@
-# Teclado-Meme
+# Teclado-Meme - Política Privacidade 
 Política Privacidade
 A sua privacidade é importante para nós. É política do respeitar a sua privacidade em relação a qualquer informação sua que possamos coletar no Aplicativo , e outros Aplicativo que possuímos e operamos.
 
