@@ -17,4 +17,4 @@ O uso continuado de nosso Aplicativo será considerado como aceitação de nossa
 Mais informações
 Esperemos que esteja esclarecido e, como mencionado anteriormente, se houver algo que você não tem certeza se precisa ou não, geralmente é mais seguro deixar os cookies ativados, caso interaja com um dos recursos que você usa em nosso Aplicativo.
 
-Esta política é efetiva a partir de October/2020.
+Esta política é efetiva a partir de Outubro/2020.
